@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @tiyicoco
 - 👀 I’m interested in computer or……
 - 🌱 I’m currently learning programme
-- 💞️ I’m looking to collaborate on stsdy
+- 💞️ I’m looking to collaborate on stady
 - 📫 How to reach me for 277086038@qq.com
 
 <!---
